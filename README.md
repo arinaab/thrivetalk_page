@@ -1,1 +1,1 @@
-# thrivetalk_page
+https://arinaab.github.io/thrivetalk_page/
